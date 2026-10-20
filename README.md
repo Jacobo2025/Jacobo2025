@@ -6,7 +6,7 @@ Lo doy todo.
 - Me gusta el cafe de especialidad.
 - Me gusta programar mientras escucho Mamis'nbikini.
 - Linux > Windows
-###  Things I use on a daily basis
+###  Cosas que uso diariamente
 
 <p align="left">
   <a href="https://www.python.org/"><img src="https://skillicons.dev/icons?i=python" alt="Python" /></a>
