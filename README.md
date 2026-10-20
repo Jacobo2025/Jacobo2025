@@ -6,9 +6,9 @@ Mi amor es esto, sé demostrarlo, vivo como un mercenario. Estoy regalando mi am
 Lo doy todo.
 
 ## Sobre mí
-- Me gusta el cafe de especialidad.
-- Me gusta programar mientras escucho Mamis'nbikini.
-- Linux > Windows
+- Me gusta el café de especialidad.
+- Me gusta programar mientras escucho Erotic Moments in House Vol. 1 (2000)
+- Soy nocturno.
 - 
 ##  Cosas que uso todo los días desde hace dos años
 
