@@ -9,7 +9,7 @@ Lo doy todo.
 - Me gusta el café de especialidad.
 - Me gusta programar mientras escucho Erotic Moments in House Vol. 1 (2000)
 - Soy nocturno.
-- 
+- Hablamos el martes.
 ##  Cosas que uso todo los días desde hace dos años
 
 <p align="left">
