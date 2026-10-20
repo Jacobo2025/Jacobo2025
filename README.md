@@ -35,6 +35,6 @@ Pienso, espero y ayuno.
   />
 </p>
 
-*Creo que hoy me salto la cena*.
+*Tengo asuntos pendientes, pero solo los veo cuando queman. Creo que hoy me salto la cena*.
 
 
