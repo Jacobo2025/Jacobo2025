@@ -11,7 +11,6 @@ Lo doy todo.
 <p align="left">
   <a href="https://www.python.org/"><img src="https://skillicons.dev/icons?i=python" alt="Python" /></a>
   <a href="https://www.java.com/"><img src="https://skillicons.dev/icons?i=java" alt="Java" /></a>
-  <a href="https://isocpp.org/"><img src="https://skillicons.dev/icons?i=c" alt="C" /></a>
   <a href="https://www.postgresql.org/"><img src="https://skillicons.dev/icons?i=postgres" alt="PostgreSQL" /></a>
   <a href="https://git-scm.com/"><img src="https://skillicons.dev/icons?i=git" alt="Git" /></a>
   <a href="https://github.com/"><img src="https://skillicons.dev/icons?i=github" alt="GitHub" /></a>
