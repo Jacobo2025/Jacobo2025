@@ -3,10 +3,12 @@
 Lo doy todo.
 
 ### Sobre mí
+---
 - Me gusta el cafe de especialidad.
 - Me gusta programar mientras escucho Mamis'nbikini.
 - Linux > Windows
 ###  Cosas que uso diariamente
+---
 
 <p align="left">
   <a href="https://www.python.org/"><img src="https://skillicons.dev/icons?i=python" alt="Python" /></a>
