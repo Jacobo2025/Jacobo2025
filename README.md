@@ -24,7 +24,7 @@ Lo doy todo.
 
 ## Cómo trabajo
 
-Ayuno, medito y reflexiono.
+Pienso, espero y ayuno.
 <p align="center">
   <img
     src="https://content3.cdnprado.net/imagenes/Documentos/imgsem/f8/f878/f878e05f-b1b9-4cb0-b182-152e611bcec5/49a1af76-3982-4238-9e22-e81cf7c72cb5_832.jpg"
