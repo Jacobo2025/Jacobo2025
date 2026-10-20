@@ -1,7 +1,7 @@
 # Hola, soy Jacobo Diaz 
 ¡Bienvenido a mi perfil! Estoy buscando mi paz como mejor sé, pero algo no va bien. Alimento mi mente, pero algo se me muere aquí.
 
-Mi amor es esto, sé demostrarlo, vivo como un mercenario. Estoy regalando mi amor... Menos peso, más alto. El cielo tan lejos de mí. Estuve pensado en ser libre. No la vida no me reconoce. !Quiteme este traje gris de crisis!. 
+Mi amor es esto, sé demostrarlo, vivo como un mercenario. Estoy regalando mi amor... Menos peso, más alto. El cielo tan lejos de mí. Estuve pensado en ser libre. No la vida no me reconoce. !Quiteme este traje gris de crísis!. 
 
 Lo doy todo.
 
